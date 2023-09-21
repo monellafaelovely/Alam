@@ -1,2 +1,2 @@
 # Alam
-Cinta alam
+Cinta alam pegunungan
